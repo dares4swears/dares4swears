@@ -2,6 +2,8 @@
 
 ![](https://i.postimg.cc/BnTn8jjN/image-11.png)
 
+[guess my favorite hermit ?](https://flipside.atabook.org)
+
 ![](https://i.postimg.cc/ZnQhgSCL/Untitled793-20260902071647.png)
 
 ${\textsf{\color{#86ce00}plural sys, check pronouns.cc for individual boundaries etc.}}$
