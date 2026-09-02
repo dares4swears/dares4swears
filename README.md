@@ -14,4 +14,4 @@ ${\textsf{\color{#fa9b00}i'm usually sitting with my partner or close friends. h
 </br>
 ${\textsf{\color{#ff4e02}i'm really annoying about pierce the veil and portal sorry in advance}}$
 </br>
-${\textsf{\color{#c3360f}everything is fine everything is normal}}$
+${\textsf{\color{#c3360f}pro/darkship dni. if you're heavily into forsaken, tadc and/or bsd maybe don't try to befriend me ok}}$
