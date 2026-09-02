@@ -10,7 +10,7 @@ ${\textsf{\color{#86ce00}plural sys, check pronouns.cc for individual boundaries
 </br>
 ${\textsf{\color{#1ca2b5}almost always off-tab, preferably whisper if you want to interact or i won't see your message}}$
 </br>
-${\textsf{\color{#fa9b00}i'm usually sitting with my partner or close friends. hi blur, zan, seb, leon and jack}}$
+${\textsf{\color{#fa9b00}i'm usually sitting with my partner, blur, my trio, seb and zan, or my close friends, leon and jack}}$
 </br>
 ${\textsf{\color{#ff4e02}i'm really annoying about pierce the veil and portal sorry in advance}}$
 </br>
