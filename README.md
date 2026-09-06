@@ -2,7 +2,7 @@
 
 [sign my ata for 100 years good luck](https://flipside.atabook.org)
 
-![](https://i.postimg.cc/1XTdV5hN/IMG-7435.gif)
+![](https://i.postimg.cc/vmBShVYg/ezgif-77b9c2c11b05e605.gif)
 
 ${\textsf{\color{#D8E1B6}plural sys, check pronouns.cc for individual boundaries etc.}}$
 </br>
