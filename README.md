@@ -1,9 +1,6 @@
 <div align="center">
   
-<img width="600" height="229" alt="image" src="https://github.com/user-attachments/assets/7133ff5c-f5a4-42fb-a01a-4580519a8e5f" />
-
-<br>
-</br>
+![](https://i.postimg.cc/9QtKcyxN/Untitled828-20261013194859.png)
 
 <img width="89" height="18" alt="image" src="https://github.com/user-attachments/assets/dc6ef495-61d6-4529-bb7f-cf1b2ac2d0d3" />
 
