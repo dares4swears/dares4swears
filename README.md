@@ -9,9 +9,9 @@
 <br>
 </br>
 
-coy　ꕮ　theyhe
+coy　ꕮ　theyhe　18 y/o 𓈒　plural
 <br>
-18 y/o 𓈒　plural
+c*h encouraged, always whisper to interact!
 
 [fluffle.cc](https://fluffle.cc/dares4swears)　[新book](https://flipside.atabook.org)　[alt](https://github.com/PERDlTION)
 
