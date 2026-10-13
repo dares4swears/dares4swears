@@ -1,6 +1,6 @@
 <div align="center">
-
-<img width="600" height="273" alt="image" src="https://github.com/user-attachments/assets/d0e3e5a9-d5e4-4e6e-a321-7746e60985ef" />
+  
+<img width="600" height="229" alt="image" src="https://github.com/user-attachments/assets/7133ff5c-f5a4-42fb-a01a-4580519a8e5f" />
 
 <br>
 </br>
@@ -9,5 +9,9 @@
 
 <br>
 </br>
+
+coy　ꕮ　theyhe
+<br>
+18 y/o 𓈒　plural
 
 [fluffle.cc](https://fluffle.cc/dares4swears)　[新book](https://flipside.atabook.org)　[alt](https://github.com/PERDlTION)
