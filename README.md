@@ -7,7 +7,7 @@
         <div align="center">
      coy　╱　avery　　they　he　lune
  <br>
-    plural system　c+h ok　w2i
+    18 y/o　　plural system　c+h ok　w2i
 <br>
       </td>
     </tr>
