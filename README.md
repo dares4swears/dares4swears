@@ -23,5 +23,5 @@ hi ! i'm coy ! your average fox on the internet. always feel free to come sit wi
   right now i'm really into pokémon and hermitcraft ( and the life series by extension ), you'll most likely find me in areas dedicated to those + in related skins. typically i'm around the pokémon area, docks or on my party island though.
 <br>
 
-[@PERDlTION](https://github.com/PERDlTION) is my alt! there is some more info if you didn't find what you're looking for here ^_^
+[@PERDlTION](https://github.com/PERDlTION) is my alt! it has some more additional info if you didn't find what you're looking for here ^_^
   </details>
