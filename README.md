@@ -23,5 +23,8 @@ hi ! i'm coy ! your average fox on the internet. always feel free to come sit wi
   right now i'm really into pokémon and hermitcraft ( and the life series by extension ), you'll most likely find me in areas dedicated to those + in related skins. typically i'm around the pokémon area, docks or on my party island though.
 <br>
 
+front statuses aren't publicly shared, but you're very welcome to ask who you're talking to! just be wary that you might not always get an answer, it depends and is very circumstantial... we usually use our own skins though p:
+<br>
+
 [@PERDlTION](https://github.com/PERDlTION) is my alt! it has some more additional info if you didn't find what you're looking for here ^_^
   </details>
