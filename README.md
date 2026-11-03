@@ -15,7 +15,7 @@
 
 <details>
   <summary>preface</summary>
-hi ! call me coy or grey ! your average fox on the internet. always feel free to come sit with me any time, just be mindful of anyone else i'm with. my partner, blur, and my best evil friends, silver & gold ( haha ), always takes priority though... please don't take it personally if i move to go to wherever they are. i'm not the most social person ( says the guy that plays a social game all the time ), and i don't usually talk to people outside my very small circle of close friends - i'm more than happy to meet new people, but please don't expect me to talk a lot ;_; i keep to myself most of the time ok. please also give my links a read, it'd be much appreciated :)
+hi ! call me coy or grey ! your average fox on the internet. always feel free to come sit with me any time, just be mindful of anyone else i'm with. my partner, [blur](https://github.com/flairforthedramatic), and my best evil friends, [silver](https://github.com/infugue) & [gold](https://github.com/lxxmisz) ( haha ), always takes priority though... please don't take it personally if i move to go to wherever they are. i'm not the most social person ( says the guy that plays a social game all the time ), and i don't usually talk to people outside my very small circle of close friends - i'm more than happy to meet new people, but please don't expect me to talk a lot ;_; i keep to myself most of the time ok. please also give my links a read, it'd be much appreciated :)
   
   <br>
 </br>
